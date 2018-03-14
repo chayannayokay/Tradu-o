@@ -1,3 +1,0 @@
-# Tradu-o
-
-##kjjkhkj
